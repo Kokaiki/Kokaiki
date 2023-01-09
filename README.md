@@ -2,10 +2,8 @@
 <h2 align="center"> :cherry_blossom: French Web developper :fr: :cherry_blossom:</h2>
 
 
-
-
-# <h1 align="center"> 💫 About Me: </h1>
-:woman_student: After retraining, I'm looking for an alternation with a professionalization contract
+## 💫 About Me:
+:woman_student: After retraining, I'm looking for an alternation with a professionalization contract :woman_student:
 
 
 ## 🌐 My Socials:
