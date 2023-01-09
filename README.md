@@ -3,7 +3,7 @@
 
 
 ## 💫 About Me:
-:woman_student: After retraining, I'm looking for an alternation with a professionalization contract :woman_student:
+:woman_student: After professional conversion, I'm looking for a company for a professionalization contract :woman_student:
 
 
 ## 🌐 My Socials:
